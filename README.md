@@ -4,14 +4,28 @@
 
 ## ***call me . .  fayie / fay or bassie !***
 
-### __pr__o__n__oun__s__ > shy/hyr/fossil/basket
+### *pr*o*n*oun*s* > shy/hyr/fossil/basket
 
-info >>
+# info >>
 
 ꒰ . i love cats ,
+
 ୨୧ ⌒ . and littel kittis !
+
 ꒰ . artist , art sucks thou :(
+
 ୨୧ ⌒ . i draw ships,reqs,designs ;
+
 ꒰ . im not oftenly on pt . .
+
 ୨୧ ⌒ . might dc sometimes ;
+
 ꒰ . fandoms : dw , wcue/wc , da .
+
+HF*5*1 on dw
+
+**4**.1k fs
+
+**6**.2k mf
+
+29 dmc
