@@ -3,9 +3,15 @@
 
 
 call me . .  fayie / fay or bassie !
+
 pronouns > shy/hyr/fossil/basket
+
 info . .
+
 i love cats ,
+
 artist , art sucks thou :(
+
 im not oftenly on pt . .
+
 fandoms : dw , wcue/wc , da .
