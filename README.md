@@ -22,6 +22,8 @@
 
 ꒰ . fandoms : dw , wcue/wc , da .
 
+![image alt](https://github.com/fossilbaskqt/nyanya/blob/5f03026fe12ddde36e5d9ec2bcd31097894b9036/Untitled314_20261029144116.png)
+
 HF*5*1 on dw
 
 **4**.1k fs
